@@ -10,5 +10,5 @@ Meu nome é Mariane ketlin
 
 guimaraes.mariane@escola.pr.gov.br
 
-![](https://media.tenor.com/NjbtSuNRGgYAAAAC/hola-jojos-bizarre-adventure.gif)
+![](https://media.tenor.com/3A8FFALpSmcAAAAC/jojos-bizarre-adventure.gif)
 
