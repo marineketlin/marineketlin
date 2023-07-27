@@ -2,7 +2,7 @@
 
 Meu nome é Mariane ketlin
 
-- Estou estudando no Alura
+- Estou estudando no [Alura](https://www.alura.com.br)
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 
