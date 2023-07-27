@@ -9,3 +9,6 @@ Meu nome é Mariane ketlin
 ### Você pode entrar em contato comigo 📫
 
 guimaraes.mariane@escola.pr.gov.br
+
+![](https://media.tenor.com/NjbtSuNRGgYAAAAC/hola-jojos-bizarre-adventure.gif)
+
